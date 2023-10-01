@@ -1,5 +1,5 @@
 ## Salve, Salve!✌
-Seja bem-vindo(a) ao meu perfil Adenilton Jacinto 🦜😎
+Seja bem-vindo(a) ao meu perfil 🦜😎
 
  <div>
    <a href="https://github.com/Adenilton-Jacinto">
